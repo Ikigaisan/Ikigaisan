@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ikigaisan
 - 👀 I’m interested in video games
-- 🌱 I’m currently learning computer science
+- 🌱 I’m currently not learning computer science
 - 💞️ I’m looking to collaborate on every fun project
 - 📫 How to reach me : on this page
 
