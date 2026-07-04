@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ikigaisan
 - 👀 I’m interested in video games
-- 🌱 I’m currently learning civil engineering
+- 🌱 I’m currently learning mechanical and biomedical engineering
 - 💞️ I’m looking to collaborate on every fun project
 - 📫 How to reach me : on this page
 
